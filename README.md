@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ICT
 - 💞️ I’m looking to collaborate on software projects 
 - 📫 How to reach me 📱+254113597026
-- 😄 Pronouns: ...
+- 😄 Pronouns: ... coding 🐥 
 - ⚡ Fun fact: ...
 
 <!---
